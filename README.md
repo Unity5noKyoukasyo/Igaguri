@@ -1,2 +1,2 @@
 Igaguri
-‚¢‚ª‚®‚è‚¢‚ª‚®‚è[
+Igaguri
